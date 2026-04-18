@@ -1,6 +1,6 @@
 🌐 **E-Portfolio – Zhean Ivan Sawalan**
 
-📖 **Introduction / About Me**
+📖 **About Me**
 Hi! I am Zhean Ivan Sawalan. I live in Heights, Barangay 1, Malaybalay City, Bukidnon. I enjoy playing online games, especially Valorant with my friends. I also run a small buy-and-sell business selling gaming accounts. I love watching anime, particularly *Attack on Titan*, and I enjoy learning new skills like cooking and repairing things.
 
 🎓 **Education**
